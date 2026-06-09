@@ -1,4 +1,4 @@
-# 
+# Gratuito Adobe Audition fluxo de trabalho para Mac OS | Turbo Adobe Audition fluxo de trabalho para PC Windows. Com biblioteca de modelos e captura multisfonte — otimizado para máximo desempenho em cada plataforma.
 
 
 
